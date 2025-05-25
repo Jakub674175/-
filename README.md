@@ -1,1 +1,1 @@
-# -
+# KUBA KAŻE CI SIĘ PAŁOWAĆ 
